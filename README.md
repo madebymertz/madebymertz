@@ -1,1 +1,1 @@
-👋 Hi, I’m @madebymertz
+👋 Hi, I’m Mertz!
